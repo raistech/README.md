@@ -1,7 +1,7 @@
+# THIS PRIVACY POLICY FOR DRIVE.INI.LOL (drive.ini.lol)
+
 Privacy Policy
 ==============
-
-Last updated: May 17, 2021
 
 This Privacy Policy describes Our policies and procedures on the collection, use and disclosure of Your information when You use the Service and tells You about Your privacy rights and how the law protects You.
 
